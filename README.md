@@ -17,7 +17,7 @@ I UH. I REALLY LIKE GAMES. AND DRAWING. CURRENTLY NOT POSTING ANYTHING BECAUSE I
 
 YOU CAN SEE ME IN PONY TOWN ON SAFE SERVER. I ACCEPT C+H FREELY WHEN I'M NOT WITH FRIENDS, BUT FEEL FREE TO W2I !
 
-"i am not social and love mojito and drawing and eating pasta. we might get along if u like these stuff too. and i love games. have i said that or not. whatever. so i like eating and sleeping and playing. i like chance. he's stupid. and yes god forbid me for liking doublefedora (bruh i have my own au of them, wdym). im not very good with boblox lore and all but yeah. duhh. i have personal life. no i dont. im lying. **cries** okay i'll stop. yeah something like that" - munchkin, 2026.
+"elliot alien skin be like: bloink bink zib ziib zibzib zibiiiik zibs!" - munchkin, 2026.
 
     
   <img width="356" height="455" alt="Снимок экрана 2026-02-14 205909" src="https://github.com/user-attachments/assets/2733cfdb-0ed1-4c01-91df-eb41f48eb46c" />

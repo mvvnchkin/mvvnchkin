@@ -1,43 +1,4 @@
-   <img width="588" height="331" alt="image" src="https://github.com/user-attachments/assets/fee76022-8cf8-43f3-94cb-c1908a678ca3" />
+YEAH UH THIS WILL BE REMADE SOMEDAY A LITTLE LATER. PATIENCE.
 
-<<𝑰 𝑨𝑴 𝑲𝑵𝑶𝑾𝑵 𝑨𝑺 𝑻𝑯𝑬 - '𝑩𝑬𝑬𝑭 𝑩𝑨𝑺𝑻𝑨𝑹𝑫'! 𝑬𝑽𝑬𝑹𝒀𝑶𝑵𝑬 𝑲𝑵𝑶𝑾𝑺 𝑰'𝑴 𝑨𝑵 𝑼𝑳𝑻𝑰𝑴𝑨𝑻𝑬 𝑴𝑨𝑺𝑻𝑬𝑹!>>
-
-  ── ⋆⋅𖤓⋅⋆ ── ── ── ── ──
-  
-₊⊹ .  HEYAA. NAME'S MUNCHKIN. YEAH, LIKE THOSE COOL CATS ! MY PRONOUNS ARE HE/HIM OR SHE/HER, OR YOU CAN ADDRESS ME WHATEVER YA WANT.  ᓚ₍ ^. .^₎
-
-QUICK INFO: INFP-T, IDIOT, CAT LOVER, GAME ADDICT AND... OTHER TITLES...
-
-
-I UH. I REALLY LIKE GAMES. AND DRAWING. CURRENTLY NOT POSTING ANYTHING BECAUSE I AM SCARED OF INTERACTIONS AND REACTIONS + I HATE MYSELF AND STUFF HAHA NOT FUNNY. BUT PERHAPS ONE DAY... 
-
-    INTERESTS: GENSHIN IMPACT, HONKAI STARRAIL, ROBLOX GAMES (FORSAKEN, BAD THINGS, LET HIM GO AND SO ON), NOVELS, MINECRAFT ARGS AND SOOOO ON !
-    
-    AS FOR FAVS I'D SAY: XIAO FROM GENSHIN IMPACT, SUNDAY AND MYDEI FROM HONKAI STARRAIL, CHANCE AND ELLIOT FROM FORSAKEN, PARTYNOOB FROM REGREVATOR AND THE OTHER BUNCH !
-
-YOU CAN SEE ME IN PONY TOWN ON SAFE SERVER. I ACCEPT C+H FREELY WHEN I'M NOT WITH FRIENDS, BUT FEEL FREE TO W2I !
-
-"elliot alien skin be like: bloink bink zib ziib zibzib zibiiiik zibs!" - munchkin, 2026.
-
-    
-  <img width="356" height="455" alt="Снимок экрана 2026-02-14 205909" src="https://github.com/user-attachments/assets/2733cfdb-0ed1-4c01-91df-eb41f48eb46c" />
-me fr fr
-
-
-── ── ── ── ── ⋆⋅𖤓⋅⋆ ── ᓚ₍ ^. .^₎
-
-
-<!--
-**mvvnchkin/mvvnchkin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+✎﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+<img width="613" height="480" alt="image" src="https://github.com/user-attachments/assets/01374f45-4787-49af-80d6-d2004d87dd8b" />

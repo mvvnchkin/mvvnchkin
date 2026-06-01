@@ -10,6 +10,8 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;✮⋆˙ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ★ ⋆˙ 
 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝙨𝙝𝙤𝙧𝙩 𝙖𝙗𝙤𝙪𝙩 𝙢𝙚: 𝙖𝙙𝙪𝙡𝙩, 𝙥𝙖𝙣𝙨𝙚𝙭𝙪𝙖𝙡, 𝙜𝙚𝙣𝙙𝙚𝙧𝙛𝙡𝙪𝙞𝙙, 𝙪𝙨𝙚 𝙖𝙣𝙮 𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙘𝙚 𝙩𝙤 𝙢𝙚, 𝙄 𝙙𝙤𝙣'𝙩 𝙢𝙞𝙣𝙙 𝙖𝙩 𝙖𝙡𝙡 !&nbsp; ⤷ ゛ ˎˊ˗
+
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝙞𝙣𝙩: 𝙬𝙝𝙞𝙨𝙥𝙚𝙧 𝙩𝙤 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 𝙬𝙞𝙩𝙝 𝙢𝙚 𝙖𝙣𝙮𝙩𝙞𝙢𝙚 ! 𝙘+𝙝 𝙛𝙧𝙚𝙚𝙡𝙮 𝙪𝙣𝙡𝙚𝙨𝙨 𝙞 𝙝𝙖𝙫𝙚 '𝙙𝙣𝙞' 𝙤𝙧 𝙨𝙞𝙢𝙞𝙡𝙖𝙧 𝙞𝙣 𝙢𝙮 𝙣𝙞𝙘𝙠𝙣𝙖𝙢𝙚 !&nbsp; ⤷ ゛ ˎˊ˗
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝙙𝙣𝙞: 𝙢𝙞𝙣𝙤𝙧𝙨 (𝙪𝙣𝙙𝙚𝙧 13 𝙮.𝙤) , 𝙜𝙚𝙣𝙪𝙞𝙣𝙚 𝙬𝙚𝙞𝙧𝙙𝙤𝙨 .&nbsp; ⤷ ゛ ˎˊ˗
